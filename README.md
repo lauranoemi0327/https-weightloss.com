@@ -1,2 +1,1 @@
-# https-weightloss.com
-Your weight loss journey starts here.
+https://wellness-journey-planner--lauranoemi.replit.app/
